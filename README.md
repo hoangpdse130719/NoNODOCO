@@ -9,4 +9,4 @@
 * Updating...
 
 
-## © 2020 Đức Hoàng | fb/DucOn0911| fb/hoangpdse130719
+## © 2020 NoNODOCO Team | fb/DucOn0911| fb/hoangpdse130719
